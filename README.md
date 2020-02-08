@@ -1,2 +1,2 @@
-# SpamApmz
+# SpamLizzle
 TOOLS SPAM SMS ALL OPERATOR NEW VERSION ^_^
